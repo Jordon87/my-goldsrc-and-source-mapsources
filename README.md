@@ -1,0 +1,1 @@
+# my-goldsrc-and-source-mapsources
